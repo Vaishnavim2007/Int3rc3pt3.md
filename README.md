@@ -1,1 +1,0 @@
-# Int3rc3pt3.md
